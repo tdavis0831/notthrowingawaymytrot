@@ -46,8 +46,7 @@ const Bio = () => {
         <p>
           Written by <strong>{author.name}</strong> {author?.summary || null}
           {` `}
-          <a href={`https://twitter.com/${social?.twitter || ``}`}>
-            You should follow them on Twitter
+          To learn more about Tasha, feel free to connect on <a href="https://www.instagram.com/tdavis0831/" target="_blank">Instagram</a> or <a href="https://www.tiktok.com/@tdavis0831" target="_blank">TikTok</a>!
           </a>
         </p>
       )}
