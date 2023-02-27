@@ -1,5 +1,5 @@
 ---
-title: "Baby it's cold outside"
+title: "Baby it's Cold Outside"
 date: "2023-02-14"
 description: "The ongoing saga of my love with the treadmill"
 ---
