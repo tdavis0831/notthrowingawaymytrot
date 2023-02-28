@@ -8,7 +8,7 @@ I have heard the saying “if you run, you’re a runner” over and over, but I
 
 First off, I will say, I really don’t care how anyone identifies in any capacity. If you ran once in high school and never again and feel like you’re a runner, good for you. 
 
-For me, being a runner was something that you achieved, that you can be proud of. If I walk my dog am I a dog walker? If I paint my house, am I a painter? If I went swimming in a lake once, does that make me a swimmer? So why are we so fast to call someone who runs a few times a runner? 
+For me, being a runner was something that you achieved, that you can be proud of. If I walk my dog, am I a dog walker? If I paint my house, am I a painter? If I went swimming in a lake once, does that make me a swimmer? So why are we so fast to call someone who runs a few times a runner? 
 
 I think part of this sentiment is inclusion, running is a hard action. To continue to run over and over, to show up- who really wants do to this initially? I think by making the term runner inclusive, it helps people not give up on running. But I personally never felt like a runner until last night.
 
@@ -28,4 +28,4 @@ There is no set speed, distance, item of clothing, weight, or anything else that
 
 Regardless, I know now for sure that I AM a runner. 
 
-Hi, I’m Tasha, I am a runner. 
+Hi, I’m Tasha, and I am a runner. 
