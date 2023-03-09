@@ -1,6 +1,6 @@
 ---
 title: Running and Boundaries
-date: "2022-01-22"
+date: "2023-01-22"
 description: "How a simple hobby turned into a valuable life lesson"
 ---
 The new years is always this symbolic representation of change. People feel as if they need a new calendar year to make the start of their “new year new me”. Statistically speaking, less than half of people fulfil their new years goals with the vast majority of not keeping up with it within 3 months. 
