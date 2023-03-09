@@ -1,6 +1,6 @@
 ---
 title: WOOOOAAHHH We're Halfway There
-date: "2022-03-09"
+date: "2023-03-09"
 description: "A brief reflection of the halfway point of NYC Marathon training "
 ---
 
