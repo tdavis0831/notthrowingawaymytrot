@@ -1,0 +1,23 @@
+---
+title: Some Advice That Isn't New or Groundbreaking
+date: "2023-03-14"
+description: "But absolutely helped me "
+---
+
+A couple of people (literally 2) have reached out to me asking for tips about running. I think this is so funny and flattering because I really initially was like UHHH I have no idea what I am doing. But then I realized, I do have some idea what I am doing and perhaps I am not an elite runner, but I do have plenty of experience being a beginner runner- so here are 4 things that helped me enjoy and improve my running.
+
+
+Number 1- get yourself fitted for good running shoes. There are not many expenses when it comes to simply just running (don’t get me started on race fees). You really only need a good pair of shoes, good socks, and decent tops and bottoms- the rest is very optional. When I finally stopped buying whatever Nike shoes were on sale at Dick’s sporting goods and went to Fleet Feet, my life changed. They do an entire fitting process from stepping on a machine that analyzes your foot, to watching you walk, to watching you run and then help you pick the right shoe. Initially I was really embarrassed and uncomfortable doing this, but now I love going in and trying on new shoes. Getting a pair of shoes can be expensive depending on what your budget looks like, but I am telling you it is an investment that is a MUST. My feet felt so much better after I was running in the shoes they recommended and I will never buy shoes another way. 
+The last time I purchased my shoes was online but that was only because I am very happy with the shoes that I was fitted for and just needed to buy the exact same ones again. There are other stores that will help you with this process, but no matter where you decide to go, make sure they are giving you the attention you deserve! Your feet deserve love and care when it comes to running and shoes are a great first step (haha) in providing that.
+
+
+Number 2- while you’re getting your fancy new shoes, pick up some good quality socks. Cotton in general isn’t great for sweat, so try to find some socks that are breathable and sweat wicking! Polyester is a great material for socks in my experience. This will make your feet feel better and help prevent blisters. I’m pretty picky about the length of my socks, but socks come in all lengths so make sure you find what is comfortable for you! 
+
+
+Number 3- get yourself a few good pairs of tops and bottoms that work for you. I am a big fan of nylon and polyester. If you are gathering at this point, material matters. Make sure you are picking material that is sweat wicking, breathable, lightweight and comfortable. Running, especially at the beginning, isn’t comfortable to being with so the least you can do is get yourself some clothing that doesn’t make it worst. I am a HUGE fan of Mercari- you can get used clothing at a good price. I am a name brand snob when it comes to running leggings specifically. I like a drawstring, pockets, and full length pants and I have been able to find all of these qualities very easily. I also have gotten lululemon leggings for 30 dollars instead of 125 dollars. This is not only cost effective but also great when someone is losing weight and it’s great for the environment! I’m not too picky when it comes to shirts because I typically end up in my sports bra when I’m running more than a couple of miles- but again, make sure the materials you pick are good for running! 
+
+
+Number 4 – get a coach. This can be the most expensive part of running for people but when I am telling you it changed everything for me, it changed EVERYTHING for me. First off, typically when people start running that don’t know enough about running to create a training schedule. There are plenty of cookie cutter training plans online but working with someone that can tweak my runs, provide me paces, monitor my hear rates during runs, provide real life feedback and support, ALL of that is incredibly valuable. I am a little biased since I have the BEST running coach ever, but not having to put any thought into my training plan has been such a stress reliever- I don’t have to worry about doing the right thing, I just have to do the things that Carrie tells me to do and so far so good! 
+
+
+There are a bunch of other things that I have changed in my life to really enjoy running but trying to change everything overnight isn’t ideal or healthy. So if these are your first few months of running, take it easy and just try to find something that you are enjoying doing. You will find what works for you eventually, and that’s ok. Nothing around running happens overnight, so buckle in for the ride and try to make the best of it. 
