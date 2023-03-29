@@ -1,3 +1,4 @@
+---
 title: If It's All Mental, Then You Do It
 date: "2023-03-29"
 description: "A rant for those who think endurance sports are purely mental"
