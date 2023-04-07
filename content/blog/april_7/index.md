@@ -1,5 +1,5 @@
 ---
-title: "why Do People Stop Running?"
+title: "Why Do People Stop Running?"
 date: "2023-04-07"
 description: "Some thoughts from someone who has stopped and started running more times that I can count"
 ---
