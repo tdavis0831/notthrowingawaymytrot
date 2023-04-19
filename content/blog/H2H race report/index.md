@@ -7,17 +7,25 @@ description: "Race Report"
 
 **Race Information**
 Name: Helderberg to Hudson Half Marathon
+
 Date: April 15, 2023
+
 Distance: 13.1
+
 Location: Albany, NY
+
 Website: https://www.areeventproductions.com/events/areep/h2h/
+
 Time: 2:21:26
 
 
 **Goals**
 Goal	Description	Completed?
+
 A 2:28:00 Time	         Yes
+
 B PR Half Marathon Time	 Yes
+
 C Finish                 Yes
 
 **Training**
