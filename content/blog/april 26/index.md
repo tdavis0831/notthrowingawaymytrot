@@ -5,7 +5,7 @@ description: "The Lie Heard Round The World"
 ---
 
 
-If you are someone who is or has trained for a half marathon or a full marathon, I am sure you have heard it before, “you must be able to eat whatever you want”.  ~sigh~
+If you are someone who is or has trained for a half marathon or a full marathon, I am sure you have heard it before, “you must be able to eat whatever you want”.  sigh
 
 
 Let’s talk about it.
