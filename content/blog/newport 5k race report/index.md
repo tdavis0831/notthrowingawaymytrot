@@ -14,6 +14,7 @@ Time: 32:38
 
 **Goals**
 Goal    Description Completed?
+
 A   Move up a corral with time  NO
 
 B   Don't walk any of it        NO
