@@ -15,7 +15,9 @@ Time: 2:31:49
 **Goals**
 Goal    Description Completed?
 A   Complete the race and have FUN! Yes
+
 B   Don't walk any of it        Yes
+
 C   Sub 2:30    No
 
 **Training**
