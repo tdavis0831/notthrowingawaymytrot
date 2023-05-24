@@ -1,7 +1,7 @@
 ---
 title: Net Neutral 
 date: "2023-05-24"
-description: "Coming down from that runners high"
+description: "Coming down from that runner's high"
 ---
 
 
